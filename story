@@ -1,7 +1,7 @@
 
 This is a comedy/drama with a strong theme of rebellion. The story is about a monk, an altruistic zoologist, a tough leader, and a technician. It starts in a small city. The crux of the story involves the making of a meal.
 The story is about a CEO. It takes place in a manufacturing city in Afghanistan. The critical element of the story is a compromise. The changing role of women in cultures plays a major role in this story.
-The story is about an exorcist who is constantly annoyed by a prospector. It takes place in a small city in South Africa. The differences between laws from country to country plays a major role in the story.
+The story is about an exorcist who is constantly visited by a minor. It takes place in a small city in South Africa. The differences between laws from country to country plays a major role in the story.
 This is a natural disaster with an emphasis on temptation. The story is about an advertising executive. It starts in a galaxy-spanning technocracy. The issues of genetic engineering and its effects on business is a major element of the story.
 This is an epic about happiness. The story is about an aggravated necromancer who is constantly annoyed by a merchant. It takes place in a village in Australia. The story climaxes with a betrayal. The fact that space may be the last frontier is a major part of this story.
 This is a tale of personal transformation. The story is about an architect and a king who was once married to a psychologist. It starts in a private club in a dark fiefdom. The story begins with temptation and ends with someone pretending to be someone else. A spell being cast at the right time plays an important role.
