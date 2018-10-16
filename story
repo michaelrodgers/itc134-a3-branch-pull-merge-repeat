@@ -8,4 +8,4 @@ This is an epic about happiness. The story is about an aggravated necromancer wh
 The story is about an introverted hunter. It starts in a magical universe. The story begins with travel and ends with a surgery. A conflict between magical races plays an important role.
 This is a tragedy with an emphasis on how life is a funny thing. The story is about an optimistic singer with big dreams. It takes place in a slaughterhouse in a lost domain. The story begins with an elopement, climaxes with an accident, and ends with a murder. The spread of new diseases in a global age plays a major part in this story.
 The story is about an alliance of newscasters. It takes place in a solar-system-spanning divine government. The issues of cybernetics and its effects on society is a major element of the story.
-The story is about a frustrated plumber and a college student. It starts in an outpost on a sunless planet. The critical element of the story is someone putting on make-up.
+The story is about a frustrated painter and a college student. It starts in an outpost on a sunless planet. The critical element of the story is someone putting on make-up.
